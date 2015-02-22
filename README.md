@@ -5,4 +5,4 @@ If you wish to take, give credit like this: Thanks to RandomEffectsYTP for the .
 
 # I will email you the .vfs, but you have to email me a request to lemasterofegg114@gmail.com.
 
-.vfs currently available: none
+.vfs currently available: Special Agent Oso YTP (2015 version alpha, minor edits)
